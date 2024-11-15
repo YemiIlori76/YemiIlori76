@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @YemiIlori76
 - 👀 I’m interested in Artificial Intellience
 - 🌱 I’m currently learning elements of Artificial Intelligence
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...Work with cybersecurity experts to develop AI systems that can predict, identify and defend against new cyber threats.Work with cybersecurity experts to develop AI systems that can predict, identify and defend against new cyber threats.
+- 💞️ I’m looking to collaborate on Work with cybersecurity experts to develop AI systems that can predict, identify and defend against new cyber threats.Work with cybersecurity experts to develop AI systems that can predict, identify and defend against new cyber threats.
+- 📫 How to reach me patrickadeyemi033@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
